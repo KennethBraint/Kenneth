@@ -1,2 +1,0 @@
-# Kenneth
-Willing to Learn
